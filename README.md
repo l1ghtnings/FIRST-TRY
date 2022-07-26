@@ -1,4 +1,4 @@
 # İLK DENEME
 
- ## alt bilgi
+ ## Link
  [Profil bağlantısı için tıklayınız.](https://github.com/l1ghtnings)
