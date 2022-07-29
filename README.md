@@ -9,4 +9,4 @@
  ## Link
 [GitHub](https://github.com/l1ghtnings)
 [LinkedIn](linkedin.com/in/barış-yıldırım-ab069520a)
-[Twitter](https://twitter.com/barisyildirimc)
+[Twitterrrrr](https://twitter.com/barisyildirimc)
